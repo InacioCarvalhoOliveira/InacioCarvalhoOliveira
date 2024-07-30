@@ -1,4 +1,4 @@
-![alt text](https://user-images.githubusercontent.com/49915749/195142431-00e05566-e0ec-4b80-a83c-824ee7d38df9.png)
+![alt text](https://github.githubassets.com/assets/hero-desktop-a38b0fd77b6c.webp)
 
 ### Hi there 👋
 
